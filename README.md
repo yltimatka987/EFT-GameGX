@@ -1,4 +1,4 @@
-# 🎯 Escape from Tarkov 2025 – Private Hack  
+# 🎯 Escape from Tarkov 2025 – Private   
 
 Dominate Tarkov with our undetected all-in-one private tool.  
 Packed with **Aimbot, ESP, Radar, No Recoil, Auto-Loot, Unlock All** — designed for safe, legit, and rage gameplay.  
